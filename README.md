@@ -1,1 +1,1 @@
-My first readme, I'm blessed for real. Life is good
+My first readme, I'm blessed for real.
